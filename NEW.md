@@ -1,1 +1,0 @@
-nadeus prokatit
